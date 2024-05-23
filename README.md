@@ -1,18 +1,18 @@
  ### Hi hi hi ✨💙
 
-🌙 - Name's Giovana! But call me Giihzinha/Giih;
+🌙 - _Name's Giovana! But call me Giihzinha/Giih;_
 
-🌙 - A HUGE fan of Sonic the Hedgehog, Kirby and Puyo Puyo;
+🌙 - _A HUGE fan of Sonic the Hedgehog, Kirby and Puyo Puyo;_
 
-🌙 - Lover of '90 era games;
+🌙 - _Lover of '90 era games;_
 
-🌙 - Unfurtunally an original artist and a fanartist on Twitter.com;
+🌙 - _Unfurtunally an original artist and a fanartist on Twitter.com;_
 
-🌙 - A (probally) future programmer and animator;
+🌙 - _A (probally) future programmer and animator;_
 
-🌙 - WANNA MAKE A LOT OF FANGAMES AND MODS;
+🌙 - _WANNA MAKE A LOT OF FANGAMES AND MODS;_
 
-🌙 - Chronically tired lol 
+🌙 - _Chronically tired lol_ 
 
 🌙 - _don't talk to me if you gonna talk about Amy or Schezo . . . i'm mentally insane about them_
 
